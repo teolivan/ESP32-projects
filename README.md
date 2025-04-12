@@ -1,1 +1,1 @@
-not to be taken seriously
+This is not very serious. Will add more things later as I go.
